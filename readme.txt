@@ -1,2 +1,2 @@
-This is awsome, again this is awesome
+This is awesome, again this is awesome
 
